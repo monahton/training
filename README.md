@@ -242,7 +242,7 @@ These workshops provide instruction on basic data skills as well as introduce ne
 
 # Contact us:
 
-**Email:** [Dr. Monah Abou Alezz](mailto:aboualezz.monah@hsr.it)
+**Email:** [Dr. Monah Abou Alezz, PhD](mailto:aboualezz.monah@hsr.it)
 
 *** 
 
